@@ -1,4 +1,4 @@
-here to copy paste edit runnnnnnnn!
+Chemical engineer
 
 <!---
 bunnymai/bunnymai is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
